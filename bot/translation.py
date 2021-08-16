@@ -62,9 +62,9 @@ currently working for @{}
 
 👑 ᴍᴀɪɴᴛᴀɪɴᴇᴅ ʙʏ : [Lord Hiten](https://telegram.dog/hiten_op)
 
-👑 ᴄʜᴀɴɴᴇʟ : [Main Channel🤒](https://telegram.dog/Netflixmovies_Series)
+👑 ᴄʜᴀɴɴᴇʟ : [Main Channel🤒](https://telegram.dog/request_moviesorSeries)
 
 **ᴜᴘᴅᴀᴛᴇᴅ ᴏɴ 26-4-21 ɪɴᴅɪᴀɴ ᴛɪᴍᴇ 4:50 ᴘᴍ**
 
-**[© 只ᴀɴ͜͜͡͡ɴɪʜɪʟᴜṠのṖ](https://telegram.dog/AnnihilusOP)**
+**[© 只ᴀɴ͜͜͡͡ɴɪʜɪʟᴜṠのṖ](https://telegram.dog/hiten_OP)**
 """
